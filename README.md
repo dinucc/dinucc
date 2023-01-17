@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @dinucc
+- 🇰otlin addict 
+   LinkedIn
 https://www.linkedin.com/in/dinu-cornel/
 
 
