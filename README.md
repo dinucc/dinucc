@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @dinucc
+https://www.linkedin.com/in/dinu-cornel/
 
 
 <!---
