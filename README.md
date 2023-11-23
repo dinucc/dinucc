@@ -1,8 +1,4 @@
-🔹👋 Hi, I’m Dinu Cornel
-🔹📱Android Developer
-🔹🇰otlin addict
 
-https://www.linkedin.com/in/dinu-cornel/
 
 
 <!---
